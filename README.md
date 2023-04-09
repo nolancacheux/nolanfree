@@ -30,4 +30,4 @@ Retrouvez-moi sur les réseaux sociaux :
 
 Pour toute demande, veuillez me contacter par mail à nolan.cacheux@gmail.com ou sur mes réseaux sociaux.
 
-© 2022 Copyright Nolanfree. Tous droits réservés.
+© 2023 Copyright Nolanfree. Tous droits réservés.
